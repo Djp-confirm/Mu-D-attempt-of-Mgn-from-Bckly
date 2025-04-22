@@ -1,1 +1,0 @@
-# Mu-D-attempt-of-Mgn-from-Bckly
